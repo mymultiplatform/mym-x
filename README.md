@@ -4,7 +4,7 @@
 
 
 **A-----> A-B------> Aa------> X-------> (?)(Z)(mym)**    
-**MYM-A ALL SERIES*
+*MYM-A ALL SERIES*
 
 
 
