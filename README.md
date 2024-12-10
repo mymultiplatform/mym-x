@@ -16,6 +16,5 @@ FUCK OFF B
 
 
 ____________________________________________________________________
-mymultiplatform.com
-<h2></h2>
+mymultiplatform.com<h2></h2>
 cincodata.com
